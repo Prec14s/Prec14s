@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Tentang aku:
 Saya adalah seorang pemula dan juga Web developer.
 
 
