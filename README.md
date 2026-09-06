@@ -1,5 +1,5 @@
 # 💫 Tentang aku:
-Saya adalah seorang pemula dan juga Web developer.
+Saya adalah seorang pemula dan juga Web and Mobile developer.
 
 
 ## 🌐 Socials:
